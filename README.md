@@ -1,2 +1,2 @@
-# neojourney.github.io
-NeoJourney Github Pages
+# hah kosong?
+Astaghfirullahhaladzim
